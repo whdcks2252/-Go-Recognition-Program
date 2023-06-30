@@ -20,6 +20,7 @@
 ![image](https://github.com/whdcks2252/-Go-Recognition-Program/assets/66254633/3998a604-c894-45be-930b-737f254e3876)
 
 <br/>
+
 ![image](https://github.com/whdcks2252/-Go-Recognition-Program/assets/66254633/3c57557c-52e7-499d-8150-755bd1b8c5a6)
 
 <br/>
