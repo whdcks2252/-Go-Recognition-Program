@@ -12,3 +12,14 @@
 
 ![image](https://github.com/whdcks2252/-Go-Recognition-Program/assets/66254633/8a16120b-ae7e-45df-9d92-4721c3c80ba1)
 <br/>
+![image](https://github.com/whdcks2252/-Go-Recognition-Program/assets/66254633/c4081524-6172-435c-a671-3f159d21be23)
+
+
+<br/>
+
+![image](https://github.com/whdcks2252/-Go-Recognition-Program/assets/66254633/3998a604-c894-45be-930b-737f254e3876)
+
+<br/>
+![image](https://github.com/whdcks2252/-Go-Recognition-Program/assets/66254633/3c57557c-52e7-499d-8150-755bd1b8c5a6)
+
+<br/>
